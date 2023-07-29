@@ -7,7 +7,7 @@
 
  https://www.planetminecraft.com/member/declanmurphy2023/
  
- https//www.t.co/YrQZSXaZam
+ https://www.t.co/YrQZSXaZam
 
 - My friend's Discord: wheezytheweasel#3486
 
