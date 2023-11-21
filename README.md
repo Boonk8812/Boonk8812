@@ -6,7 +6,9 @@
 - My Discord Server and my Planet Minecraft:
 
  Planet Minecraft Community (PMC): https://www.planetminecraft.com/member/declanmurphy2023/
+
  Canonical Launchpad: https://launchpad.net/~declanminer86
+ 
  Discord: https://discord.gg/qAGq6Axw76
 
 - My friend's Discord: wheezytheweasel#3486
