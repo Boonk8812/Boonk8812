@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-<!--
-**Boonk8812/Boonk8812** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 - 🔭 I’m currently working on ... Random things
 - 🌱 I’m currently learning ... whatever
@@ -12,7 +10,7 @@
 - 😄 Pronouns: ... He/Him/They/Them
 - ⚡ Fun fact: I like stupid tech thinga
 - ㊙️ Secret Superpower: can see individual pixels and their black spacings on an TN LCD (Twisted Nematic Liquid Crystal Display)
--->
+
 
 I have a YouTube channel too! YT: https://youtube.com/@DeclanMiner5143
 
