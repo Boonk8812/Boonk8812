@@ -12,7 +12,7 @@
 - ㊙️ Secret Superpower: I can see individual pixels and their black spacings on an TN LCD (Twisted Nematic Liquid Crystal Display)
 
 
-I have a YouTube channel too! YT: https://youtube.com/@DeclanMurphy4619
+I have a YouTube channel too! YT: https://youtube.com/@DeclanMurphy-n1n
 
 ![declangifgithub](https://github.com/Boonk8812/Boonk8812/assets/111024718/dca1b81a-a028-40ca-bb90-cb2fe5226924)
 
