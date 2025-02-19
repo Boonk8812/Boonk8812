@@ -8,7 +8,7 @@
 - 💬 Ask me about ... What I do
 - 📫 How to reach me: ... Be nice and civil
 - 😄 Pronouns: ... He/Him/They/Them
-- ⚡ Fun fact: I like stupid tech things
+- ⚡ Fun fact: I like technology, neuroscience, chemistry, science, nature, mathematics, photography, videography, computers, and sci-fi. (Especially Back to The Future)
 - ㊙️ Secret Superpower: I can see individual pixels and their black spacings on an TN LCD (Twisted Nematic Liquid Crystal Display)
 
 
